@@ -9,7 +9,9 @@ I have always been passionate about marketing and the ways in which it can drive
 🏂 Snowboarding
 
 🥾 Hiking
+
 🌏 Traveling
+
 🪛 PC Building
 
 **Contact me!**
