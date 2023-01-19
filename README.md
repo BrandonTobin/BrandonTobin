@@ -17,4 +17,5 @@ I have always been passionate about marketing and the ways in which it can drive
 **Contact me!**
 
 📧 brandontobinbusiness@gmail.com
+
 📌 https://www.linkedin.com/in/brandontobinswe/
